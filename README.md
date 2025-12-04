@@ -4,7 +4,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on Python
 - 🌱 I’m currently learning AI Automation
-- 💬 Ask me about Geopolitics🫡
+- 💬 Can have a good chit chat on Geopolitics🫡
 - 📫 How to reach me: ashokbhariya444@gmail.com
 - ⚡ Fun fact: I can be a good Team Leader
 
