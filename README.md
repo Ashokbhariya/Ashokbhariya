@@ -5,7 +5,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on Python
 - 🌱 I’m currently learning AI Automation
 - 💬 Can have a good chit chat on Geopolitics🫡
-- 📫 How to reach me: 1. ashokbhariya444@gmail.com  / https://www.linkedin.com/in/ashok-kumar-bhariya/
+- 📫 How to reach me: ashokbhariya444@gmail.com  / https://www.linkedin.com/in/ashok-kumar-bhariya/
 - ⚡ Fun fact: I think i can be a good Team Leader
 
 
