@@ -1,3 +1,7 @@
+![Profile Views](https://komarev.com/ghpvc/?username=Ashokbhariya&label=Profile%20Views&color=0e75b6&style=flat)
+
+
+
 ## Hi there 👋 I'm Ashok Kumar Bhariya 
 
 Here are some ideas to get you started:
